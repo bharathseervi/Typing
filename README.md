@@ -1,2 +1,2 @@
 # Typing
-learnig tp type faster than now
+learnig to type faster than now
